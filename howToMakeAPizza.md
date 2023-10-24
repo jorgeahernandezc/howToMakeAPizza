@@ -1,3 +1,9 @@
+-preparamos la masa con levadura y agua
+-dejamos reposar una hora
+-le damos forma a la masa
+-ponemos queso a la orilla
+-mucho peperoni y salsa de tomate
+
 # Receta de Pizza
 
 A continuación, se muestra una receta simple para hacer una deliciosa pizza casera.
